@@ -13,7 +13,7 @@
 
 - 📫 How to reach me: **wani4ka@duck.com**
 
-- ⚡ Fun fact: **I know four languages! :D**
+- ⚡ Fun fact: **I know four human languages! :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
