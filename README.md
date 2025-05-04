@@ -6,6 +6,7 @@ Backend Developer
 
 *   🌍  I'm based in Belarus
 *   ✉️  You can contact me at [wani4ka@duck.com](mailto:wani4ka@duck.com)
+*   🚀  I'm currently working at [Ozon Tech](https://ozon.tech/)
 *   🤝  I'm open to collaborating on interesting projects
 *   ⚡  I know five human languages!!
 
